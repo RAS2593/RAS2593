@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RAS2593
+- 👀 I’m interested in jailbreak
+- 🌱 I’m currently learning to jailbreak
+- 💞️ I’m looking to collaborate on the jailbreak
